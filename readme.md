@@ -1,1 +1,1 @@
-![ocumaxLogo](http://i.imgur.com/71gEzdH.png)
+![ocumaxLogo](http://i.imgur.com/dYg7B4g.png)
